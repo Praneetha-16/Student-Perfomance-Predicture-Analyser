@@ -62,6 +62,6 @@ Want to improve this project? Follow these steps:
 ---
 
 ## 🔗 Connect with Me  
-👤 **Sattu Sreeja**    
+👤 **praneetha**    
 
 🌟 Star this repo if you find it useful! 😊✨  
